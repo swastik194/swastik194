@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on non
 - 📫 How to reach me 6289907536
 - 😄 Pronouns: he
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I love anime
 
 <!---
 swastik194/swastik194 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
